@@ -10,6 +10,6 @@ Meu nome é Leonardo almeida
 
 almeidsleo@gmail.com
 
-@leonardaalmeida
+@leonardoalmeida
 
 ![](https://media.tenor.com/JHp-pctUPkcAAAAM/margotsprestige-monkey-backpack.gif)
